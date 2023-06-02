@@ -1,0 +1,11 @@
+
+![WhatsApp Image 2023-06-03 at 12 10 39 AM](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/8c3795d9-a0c0-46a3-92b0-ccf13729eaf4)
+![WhatsApp Image 2023-06-03 at 12 10 39 AM(1)](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/b710adb6-f26c-4c2b-8bdf-cef7f201adb0)
+![WhatsApp Image 2023-06-03 at 12 10 40 AM](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/89abe4cf-1920-4378-8f0f-64bed77390d5)
+![WhatsApp Image 2023-06-03 at 12 10 40 AM(1)](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/4f545be9-ec22-4da2-b1ae-c78112e21c77)
+![WhatsApp Image 2023-06-03 at 12 10 40 AM(2)](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/0c98f75e-ae8c-4a80-926e-3bdca43ae43c)
+![WhatsApp Image 2023-06-03 at 12 10 41 AM(1)](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/46833228-3af2-4222-b732-cf64909eeb1a)
+![WhatsApp Image 2023-06-03 at 12 10 42 AM](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/93ae08bb-747b-4f39-bb8e-4ae318237759)
+![WhatsApp Image 2023-06-03 at 12 10 42 AM(1)](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/d7fac44f-d81b-4655-b2d3-b3bd17c9ed08)
+![WhatsApp Image 2023-06-03 at 12 10 42 AM(2)](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/b076ec72-d5d9-49bd-b466-0814b3daaa9e)
+![WhatsApp Image 2023-06-03 at 12 10 43 AM](https://github.com/SujithVSuresh/Scrap-Selling-Application-Buyer/assets/82325662/076b2cba-b290-418b-adbd-3ea10ac570cf)
